@@ -4,7 +4,7 @@
 ![screen-gif](https://i.pinimg.com/originals/f1/a6/e6/f1a6e693fa8723eb521c9ddcc84a53f3.gif)
 
 smth about me:
-1) 👾 video-gamer (fallout new-vegas, stardew valley, league of legens etc)
+1) 👾 video-gamer (fallout new-vegas, stardew valley, league of legends etc)
 2) 📚 reading books (erich maria remarque is my god)
 3) ✍️ writing kinda poems: t.me/not_feel_sorry
 4) 🧑‍🎓 part of student council in financial university under government of russian federation
